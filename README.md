@@ -26,6 +26,5 @@ AI-Subject Processor
 
 Reality Hacking
 
-Full PDF on GitHub 
-https://github.com/GeorgeGerzon/Final-Reality/blob/main/Final%20Reality.pdf
+
 
