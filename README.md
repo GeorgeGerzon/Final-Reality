@@ -1,4 +1,4 @@
-Reality is the imprecision of reflection = 1/137
+Disclaimer: This text is an ontology, not a scientific theory. It is the ground from which science must grow and upon which it must rely. Mathematics, physics, and AI engineering are not proven or calculated here using standard methods, but rather demonstrate the foundations and explanations behind fundamental scientific concepts and observations, and the direction of further research.
 
 FINAL REALITY
 
